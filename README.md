@@ -1,7 +1,7 @@
 <div align="center"> 
 
                                                             
-<img width="30%" src="https://i.postimg.cc/y63xp0tx/IMG-0441.jpg"> 
+<img width="50%" src="https://i.postimg.cc/y63xp0tx/IMG-0441.jpg"> 
 
 ♡*well i dont like to use gadgets... outside the bedroom*♡
 
