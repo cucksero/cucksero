@@ -7,7 +7,7 @@
 
  <br>
  
- alt for @sadsero for lurking 
+ alt for @sadsero 
  
  fujogirl who loves to cuck her oomfs 
  
