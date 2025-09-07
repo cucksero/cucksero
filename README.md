@@ -19,7 +19,7 @@
 
 ∴.·:*¨ ¨*:·. ☙.·:*¨ ¨*:·.♡ .·:*¨ ¨*:·. ❧.·:*¨ ¨*:·.∴
 
-<br>![](https://www.last.fm/user/sadsero)
+<a href="https://www.last.fm/user/sadsero" a>
 
 <br>![](https://komarev.com/ghpvc/?username=sadser0&label=visitors+++&color=2d2f59)
 <br>
