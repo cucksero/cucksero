@@ -6,7 +6,7 @@
 
 ♡*i need some more | need someone whos insecure*♡
 
-∴.·:*¨ ¨*:·. ☙.·:*¨ ¨*:·.♡ .·:*¨ ¨*:·. ❧.·:*¨ ¨*:·.∴
+∘₊✧──────✧₊∘
  <br>
  
  fujogirl who loves to cuck her oomfs 🫶
