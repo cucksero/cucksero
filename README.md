@@ -8,12 +8,9 @@
 ∴.·:*¨ ¨*:·. ☙.·:*¨ ¨*:·.♡ .·:*¨ ¨*:·. ❧.·:*¨ ¨*:·.∴
  <br>
  
- alt for @sadsero 
- 
  fujogirl who loves to cuck her oomfs 🫶
  
- 
- int if you like austin powers or yaoi ig  
+ read sp before int pls 
 <br>
 <img width="30%" src="https://i.postimg.cc/3N69r27n/IMG-0443.jpg"> 
 
