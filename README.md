@@ -1,6 +1,6 @@
 <div align="center"> 
 
-                                                            
+ ─── ⋆⋅☆⋅⋆ ──                                                           
 <img width="50%" src="https://i.postimg.cc/LXJFzGYh/IMG-1247.jpg"> 
 
 ♡*i need some more | need someone whos insecure*♡
