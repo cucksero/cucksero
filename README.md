@@ -1,10 +1,9 @@
 <div align="center"> 
 
  ─── ⋆⋅☆⋅⋆ ───          
+ ♡*i need some more | need someone whos insecure*♡
  
 <img width="50%" src="https://i.postimg.cc/LXJFzGYh/IMG-1247.jpg"> 
-
-♡*i need some more | need someone whos insecure*♡
 
 ∘₊✧──────✧₊∘₊˚ʚ ᗢ₊˚✧ ﾟ.
  <br>
