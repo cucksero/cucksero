@@ -3,7 +3,7 @@
                                                             
 <img width="50%" src="https://i.postimg.cc/LXJFzGYh/IMG-1247.jpg"> 
 
-♡*well i dont like to use gadgets... outside the bedroom*♡
+♡*i need some more | need someone whos insecure*♡
 
 ∴.·:*¨ ¨*:·. ☙.·:*¨ ¨*:·.♡ .·:*¨ ¨*:·. ❧.·:*¨ ¨*:·.∴
  <br>
