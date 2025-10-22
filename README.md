@@ -1,9 +1,9 @@
 <div align="center"> 
 
  ─── ⋆⋅☆⋅⋆ ───          
- ♡*i need some more | need someone whos insecure*♡
+ ♡*did you want to catch that butterfly?*♡
  
-<img width="50%" src="https://i.postimg.cc/qBLcPQ4G/IMG-1616.jpg"> 
+<img width="50%" src="https://i.postimg.cc/vHnY12Ds/IMG-2658.png"> 
 
 ∘₊✧──────✧₊∘₊˚ʚ ᗢ₊˚✧ ﾟ.
  <br>
