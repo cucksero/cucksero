@@ -1,7 +1,7 @@
 <div align="center"> 
 
  ─── ⋆⋅☆⋅⋆ ───          
- ♡*did you want to catch that butterfly?*♡
+ ♡ *did you want to catch that butterfly?* ♡
  
 <img width="50%" src="https://i.postimg.cc/vHnY12Ds/IMG-2658.png"> 
 
