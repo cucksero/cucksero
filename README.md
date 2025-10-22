@@ -1,11 +1,11 @@
 <div align="center"> 
 
  ─── ⋆⋅☆⋅⋆ ───          
- ♡ *did you want to catch that butterfly?* ♡
+ʚɞ *did you want to catch that butterfly?* ʚɞ
  
 <img width="50%" src="https://i.postimg.cc/vHnY12Ds/IMG-2658.png"> 
 
-∘₊✧──────✧₊∘₊˚ʚ ᗢ₊˚✧ ﾟ.
+∘₊✧──────✧₊∘₊˚ʚ ʚɞ₊˚✧ ﾟ.
  <br>
  
  fujogirl who loves to cuck her oomfs 🫶
