@@ -3,7 +3,7 @@
  ─── ⋆⋅☆⋅⋆ ───          
  ♡*i need some more | need someone whos insecure*♡
  
-<img width="50%" src="https://i.postimg.cc/LXJFzGYh/IMG-1247.jpg"> 
+<img width="50%" src="https://i.postimg.cc/qBLcPQ4G/IMG-1616.jpg"> 
 
 ∘₊✧──────✧₊∘₊˚ʚ ᗢ₊˚✧ ﾟ.
  <br>
